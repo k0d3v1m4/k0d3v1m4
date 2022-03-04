@@ -1,0 +1,21 @@
+- 👋 Hi, I’m @k0d3v1m4
+-- HTML
+-- CSS
+-- YII2
+-- Discord
+- 🌱 I’m currently learning Web Development, C#
+- 📫 How to reach me 
+-- SNJ Discord server - discord.gg/8SXzatabqU
+-- Muumiorg Discord server - https://discord.gg/84WJMvHS5C
+-- DCITY Discord server - discord.gg/TuARPBd4wm
+-- SNJ Website - Coming soon!
+-- FB: www.facebook.com/k0d3v1m4
+-- Reddit: https://www.reddit.com/user/k0d3v1m4
+-- Twitter: twitter.com/k0d3v1m4
+-- Twitch.tv: www.twitch.tv/k0d3v1m4
+-- Steam: steamcommunity.com/id/k0d3v1m4
+-- RiotID: k0d3v1m4#00001
+-- Battle.net : kmkorka#2788
+-- Origin: k0d3v1m4
+-- Epic Games: k0d3v1m4
+-- Ubisoft: k0d3v1m4
